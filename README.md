@@ -1,1 +1,0 @@
-# Kruh_Dokonceni
